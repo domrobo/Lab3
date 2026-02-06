@@ -48,3 +48,7 @@ https://domrobo.github.io/Lab3/
 
 ## Відео роботи програми
 
+
+https://github.com/user-attachments/assets/e96ebe29-388f-4089-b82c-cb80aac47b4a
+
+
